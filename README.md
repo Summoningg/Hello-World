@@ -1,4 +1,2 @@
 # Hello-World
-just qtmd bthes
-
-bad bichies always
+小壹 Here！
